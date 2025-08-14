@@ -1,0 +1,6 @@
+
+---
+# **CONCORDANCIAS - BLOQUE IV. GESTIÓN DE PERSONAL**
+
+---
+

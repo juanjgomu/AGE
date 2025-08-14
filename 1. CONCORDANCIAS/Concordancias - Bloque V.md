@@ -1,0 +1,6 @@
+
+---
+# **CONCORDANCIAS - BLOQUE V. GESTIÓN FINANCIERA**
+
+---
+
